@@ -1,0 +1,1 @@
+# dam-olish-uchun-joylar
